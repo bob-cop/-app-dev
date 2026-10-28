@@ -1,6 +1,7 @@
 # My Favorite Series: DANMACHI
 
 > *"Firebolt!!🔥"* — Bellcranel
+
 **Danmachi** follows the journey of Bell Cranel, a naive 14-year-old rookie adventurer striving to become a legendary hero
 
 ### Key Details
