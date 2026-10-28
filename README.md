@@ -1,16 +1,15 @@
-# My Favorite Series: Breaking Bad
+# My Favorite Series: DANMACHI
 
-> *"I am not in danger, Skyler. I am the danger!"* — Walter White
-
-**Breaking Bad** is an acclaimed American crime drama television series created and produced by Vince Gilligan. It follows the story of Walter White, a struggling high school chemistry teacher who is diagnosed with stage III lung cancer.
+> *"Firebolt!!🔥"* — Bellcranel
+**Danmachi** follows the journey of Bell Cranel, a naive 14-year-old rookie adventurer striving to become a legendary hero
 
 ### Key Details
-* **Genre:** Crime drama, Neo-Western, Thriller
-* **Original Network:** AMC
-* **Seasons:** 5 (62 episodes)
-* **Main Cast:** Bryan Cranston as Walter White, Aaron Paul as Jesse Pinkman
+* **Genre:** Fantasy, Adventure, Action, Shonen
+* **Original Network:** Tokyo MX, AT-X, ABEMA
+* **Seasons:** 5+ (Multiple seasons and OVAs)
+* **Main Cast:** Yoshitsugu Matsuoka as Bell Cranel, Inori Minase as Hestia
 
 ### Why I Love It
-1. **Incredible Character Development:** The transformation of the protagonist from a mild-mannered teacher into a ruthless kingpin is legendary.
-2. **Tense Storytelling:** Every episode keeps you on the edge of your seat with high stakes and brilliant plot twists.
-3. **Cinematography:** The visual framing and desert landscapes of Albuquerque make it stand out.
+1. **Epic Progression & Growth:** Watching Bell go from a weak, terrified rookie to a courageous hero who pushes past his limits is incredibly satisfying.
+2. **Rich World-Building:** The concept of the Gods forming Familias, managing divine domains, and delving deeper into the dangerous labyrinth of the Dungeon creates an immersive universe.
+3. **High-Stakes Action:** The intense boss fights, emotional turning points, and tactical battles keep you completely hooked on every episode.
